@@ -1,5 +1,5 @@
 
-# 💫 Hi 👋, I'm Yash Vijay Bhanuse
+# 💫 Hi 👋, I'm Yash Bhanuse
 **A passionate Full Stack Engineer from India **
 
 Email Me 👉 ✉️ **yashbhanuse4892@gmail.com* For Collaboration/Project or Anything Else. 😊😊
